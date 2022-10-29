@@ -7,10 +7,3 @@
 - 👯 I’m looking to collaborate on new projects with other developers on projects that would help strengthen my skills.
 
 - 🤔 I’m looking for a partner i can learn with and also share ideas.
-
-- 💬 Ask me about 
-
-- 📫 How to reach me: <
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
